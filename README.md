@@ -1,1 +1,1 @@
-ethic.io
+intertwine.io Splash page
